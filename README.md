@@ -1,3 +1,7 @@
+<p align="center">
+<a href="https://www.freecounterstat.com" title="free hit counter"><img src="https://counter1.optistats.ovh/private/freecounterstat.php?c=c71mqa98ctzj1e1tbx5h7zec6mg6sssq" border="0" title="free hit counter" alt="free hit counter"></a>
+  </a>
+</p>
 <div align="center">
   <a href="https://seraphixd.straw.page/">straw</a> ￴￴￴￴￴￴ ￴￴￴￴￴￴ ￴￴￴￴￴￴￴￴
   <img src="https://file.garden/aTN1R0deYkPxCX0D/blooodo.webp" alt="Sample Image" style="vertical-align: middle;"> ￴￴￴￴￴￴ ￴￴￴￴￴￴ ￴￴￴￴￴￴￴￴
