@@ -1,7 +1,7 @@
 <div align="center">
   <a href="https://seraphixd.straw.page/">straw</a> ￴￴￴￴￴￴ ￴￴￴￴￴￴ ￴￴￴￴￴￴￴￴
   <img src="https://file.garden/aTN1R0deYkPxCX0D/blooodo.webp" alt="Sample Image" style="vertical-align: middle;"> ￴￴￴￴￴￴ ￴￴￴￴￴￴ ￴￴￴￴￴￴￴￴
-  <a href="https://seraphixd.atabook.org/">ata</a>
+  <a href="https://ninathekillr.atabook.org/">ata</a>
 </div>
 <div align="center">
 w2i & c+h encouraged unless specified otherwise
