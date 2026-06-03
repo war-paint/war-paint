@@ -10,7 +10,7 @@ w2i & c+h encouraged unless specified otherwise
 check strawpage for more info ‎‎ (´◞ ✚𓏼 )།໒꒱ྀ
 </div>
 <p align="center">
-<img width="96px" height="53px" src="https://media1.tenor.com/m/jM7ZjNTN_RIAAAAC/smile-dog-smile.gif">
+<img width="85px" height="70px" src="https://media1.tenor.com/m/jM7ZjNTN_RIAAAAC/smile-dog-smile.gif">
 <p align="center">
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
