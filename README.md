@@ -1,7 +1,7 @@
 <div align="center">
-  <a href="https://ninatheklr.straw.page/">straw</a> ￴￴￴￴￴￴ ￴￴￴￴￴￴ ￴￴￴￴￴￴￴￴
+  <a href="https://war-paint.straw.page/">straw</a> ￴￴￴￴￴￴ ￴￴￴￴￴￴ ￴￴￴￴￴￴￴￴
   <img src="https://file.garden/aTN1R0deYkPxCX0D/blooodo.webp" alt="Sample Image" style="vertical-align: middle;"> ￴￴￴￴￴￴ ￴￴￴￴￴￴ ￴￴￴￴￴￴￴￴
-  <a href="https://ninatheklr.atabook.org/">ata</a>
+  <a href="https://war-paint.atabook.org/">ata</a>
 </div>
 <div align="center">
 w2i & c+h encouraged unless specified otherwise
