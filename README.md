@@ -4,7 +4,7 @@
   <a href="https://war-paint.atabook.org/">ata</a>
 </div>
 <div align="center">
-w2i & c+h encouraged unless specified otherwise
+w2i & c+h are heavily encouraged unless specified otherwise
 </div>
 <div align="center">
 check strawpage 4 more info!!
