@@ -10,7 +10,7 @@ W2i & c+h encouraged unless specified otherwise
 Check strawpage for more info!!
 </div>
 <div align="center">
- It may be hard to read. If so, send me a whisper, and I'll fix it immediately
+ It may be hard to read. If so, let me know please, and I'll fix it immediately
 </div>
 <p align="center">
 <img width="96px" height="53px" src="https://media1.tenor.com/m/jM7ZjNTN_RIAAAAC/smile-dog-smile.gif">
