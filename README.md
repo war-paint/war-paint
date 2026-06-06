@@ -13,7 +13,7 @@ Look at strawpage for more info
 It may be hard to read. If so, let me know please and I'll fix it!
 </div>
 <p align="center">
-<img width="107px" height="74px" src="https://file.garden/aTN1R0deYkPxCX0D/luna.gif">
+<img width="161px" height="96px" src="https://file.garden/aTN1R0deYkPxCX0D/luna.gif">
 <p align="center">
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
