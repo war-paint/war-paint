@@ -6,6 +6,6 @@
   </a>
 </p>
 <div align="center">
-<a href="https://rentry.co/spliffitup">RENTRY</a>ㅤㅤ￴￴￴￴￴
-<a href="https://spliffitup.atabook.org/">ATABOOK</a>ㅤㅤ￴￴
+<a href="https://rentry.co/war-paint">RENTRY</a>ㅤㅤ￴￴￴￴￴
+<a href="https://war-paint.atabook.org/">ATABOOK</a>ㅤㅤ￴￴
 </div>
