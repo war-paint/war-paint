@@ -9,6 +9,6 @@ likely ofttab/in menu⠀⠀⠀w2i/c+h⠀⠀⠀don't copy skins
   </a>
 </p>
 <div align="center">
-<a href="https://rentry.co/war-paint">RENTRY</a>ㅤㅤ￴￴￴￴￴
-<a href="https://war-paint.atabook.org/">ATABOOK</a>ㅤㅤ￴￴
+<a href="https://rentry.co/war-paint">rentry</a>ㅤㅤ￴￴￴￴￴
+<a href="https://war-paint.atabook.org/">atabook</a>ㅤㅤ￴￴
 </div>
