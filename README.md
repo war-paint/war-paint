@@ -10,6 +10,6 @@ ${{\color{#86c4bc}{w2i} }}$ ${{\color{#f19eb8}{and} }}$ ${{\color{#0aa793}{c+h} 
 <p align="center">
   
 <div align="center">
-<a href="https://rentry.co/war-paint">{rentry}</a>ㅤㅤ￴￴￴￴￴
+<a href="https://rentry.co/war-paint">rentry</a>ㅤㅤ￴￴￴￴￴
 <a href="https://war-paint.atabook.org/">atabook</a>ㅤㅤ￴￴
 </div>
