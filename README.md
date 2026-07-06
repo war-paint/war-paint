@@ -1,5 +1,5 @@
 <p align="center">
-<img width="216px" height="120px" src="https://file.garden/aTN1R0deYkPxCX0D/squish.png">
+<img width="216px" height="120px" src="https://file.garden/aTN1R0deYkPxCX0D/mizisuachibi.png">
 <p align="center">
 <p align="center">
 likely offtab/in menu⠀⠀⠀w2i/c+h⠀⠀⠀don't copy skins
