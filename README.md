@@ -10,5 +10,5 @@ w2i/c+h　　dnc skins
   
 <div align="center">
 　‎‎ ‎‎ ‎‎ ‎‎ <a href="https://rentry.co/war-paint">rentry</a>ㅤㅤ￴￴￴￴￴
-　　<a href="https://war-paint.atabook.org/">atabook</a>ㅤㅤ￴￴
+　<a href="https://war-paint.atabook.org/">atabook</a>ㅤㅤ￴￴
 </div>
